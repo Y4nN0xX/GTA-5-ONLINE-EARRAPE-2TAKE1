@@ -1,3 +1,8 @@
+
+( this code never got update i lost all my sources codes but earrape still work and never got patch) 
+
+
+
 # GTA-5-ONLINE-EARRAPE-2TAKE1-
   EarRape Menu V1.3
          + New Welcome design
